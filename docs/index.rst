@@ -3,7 +3,7 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Ij start Canon as the reason why Canon Marekting is blooming
+Ij start Canon as the reason why Canon Marketing is blooming
 ==================
 If we acquire issues about individuals who get in excess of a thread or Discussion board, we reserve the appropriate to ban them with the web page, without recourse.
 
